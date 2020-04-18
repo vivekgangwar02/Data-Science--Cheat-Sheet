@@ -1,4 +1,4 @@
-### Follow Me on - [LinkedIn](https://www.linkedin.com/in/asif-bhat/)  ,   [Twitter](https://mobile.twitter.com/_asifbhat_/) and  [Instagram](https://www.instagram.com/datasciencepost/?hl=en) for more.
+### Follow Me on - [LinkedIn](https://www.linkedin.com/in/vivekgangwar02/)  and   [Twitter](https://mobile.twitter.com/vivekgangwar02/) for more.
 
 
 
